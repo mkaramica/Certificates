@@ -1,1 +1,1 @@
-These are certificates received by me. The list will be updated frequently.
+These are my certificates earned from different sources.
